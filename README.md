@@ -1,1 +1,1 @@
-# 8-sinf-IT
+# 8-sinf-IT darslari
